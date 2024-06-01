@@ -3,3 +3,6 @@
 ![image](https://github.com/dinaamlll/179_Exe2/assets/127063272/24c65fb0-6366-4919-a5b9-7f3100d0bc7f)
 
 ![image](https://github.com/dinaamlll/179_Exe2/assets/127063272/bb570d6a-c16e-4038-b623-e6e748922e8f)
+[
+![Tiara-Andini](https://github.com/dinaamlll/179_Exe2/assets/127063272/982fbdf7-8dff-402d-8b4b-dcdc0bd17513)
+](url)
